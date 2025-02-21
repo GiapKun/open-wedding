@@ -1,1 +1,1 @@
-# open-wedding 2025
+# open-wedding
